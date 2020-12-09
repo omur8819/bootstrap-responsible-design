@@ -1,6 +1,6 @@
 # Responsible Design with Bootstrap
 
-Talk to me :  [My Account of Linked](https://www.linkedin.com/in/sirius-star/)
+Talk to me :  [My Account of Linked](https://www.linkedin.com/in/omur-bozdag-20ba141b2/)
 
 Woo-hoo! MORE CODING!!! Exciting! :-)
 
